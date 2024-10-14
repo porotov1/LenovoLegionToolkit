@@ -14,13 +14,6 @@
 
 ---
 
-![Ukrainian Flag](assets/ukraine_flag_bar.png)
-
-Support the Armed Forces of Ukraine and People Affected by Russia’s Aggression on UNITED24, the official fundraising platform of Ukraine: https://u24.gov.ua.
-
-**Слава Україні!**
-
-![Ukrainian Flag](assets/ukraine_flag_bar.png)
 
 <br />
 
